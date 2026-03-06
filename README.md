@@ -1,4 +1,4 @@
-# ADHD Diagnoses in Childern Post COVID-19  
+# ADHD Diagnoses in Children Post COVID-19  
 
 ## Description   
 
